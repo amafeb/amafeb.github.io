@@ -19,7 +19,7 @@
 
 ### Category Name 2
 
-- [PZIB Topic 3 & 4 - Practice | Hands-On Python 1](https://colab.research.google.com/drive/1kfIRLY0X-pqyt3kQdVKrAlJN9GU3gWQ7?usp=sharing)
+- [PZIB Topic 3 & 4 - Practice | Hands-On Python 1](https://colab.research.google.com/drive/1kfIRLY0X-pqyt3kQdVKrAlJN9GU3gWQ7?usp=sharing/)
 - [Project 2 Title](http://example.com/)
 - [Project 3 Title](http://example.com/)
 - [Project 4 Title](http://example.com/)
