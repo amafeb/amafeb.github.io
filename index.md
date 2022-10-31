@@ -9,7 +9,7 @@
 
 ---
 [PZIB Assignment Hands-On Python 2](/pdf/Topic 5 6 - Ama Febriyanti.pdf)
-<img src="images/dummy_thumbnail.jpg?raw=true"/>
+<img src="images/Sampul.png?raw=true"/>
 
 ---
 [Project 3 Title](http://example.com/)
