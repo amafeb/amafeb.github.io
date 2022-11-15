@@ -2,13 +2,13 @@
 
 ---
 
-### Category Name 1 
+### Project Output 
 
-[Project 1 Title](/sample_page)
-<img src="images/dummy_thumbnail.jpg?raw=true"/>
+[Project 1 Assignment Hands-On Python 2](/pdf/Topic 5 6 - Ama Febriyanti.pdf)
+<img src="images/Sampul.png?raw=true"/>
 
 ---
-[Project 2 Assignment Hands-On Python 2](/pdf/Topic 5 6 - Ama Febriyanti.pdf)
+[Project 2 Assignment Hands-On SQL](/pdf/Topic 15, 16, 17 - Ama Febriyanti.pdf)
 <img src="images/Sampul.png?raw=true"/>
 
 ---
