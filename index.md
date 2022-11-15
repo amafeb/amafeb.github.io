@@ -5,11 +5,11 @@
 ### Project Output 
 
 [Project 1 Assignment Hands-On Python 2](/pdf/Topic 5 6 - Ama Febriyanti.pdf)
-<img src="images/Sampul2.png?raw=true"/>
+<img src="images/Sampul.png?raw=true"/>
 
 ---
 [Project 2 Assignment Hands-On SQL](/pdf/Topic 15, 16, 17 - Ama Febriyanti.pdf)
-<img src="images/Sampul.png?raw=true"/>
+<img src="images/Sampul2.png?raw=true"/>
 
 ---
 [Project 3 Title](http://example.com/)
