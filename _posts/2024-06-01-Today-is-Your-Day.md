@@ -5,7 +5,7 @@ Jadiii, setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar
 
 Pertama, yok refleksi sejenak, nengok kebelakang bentar. Hebat ya.. wes banyak masa dan hal seng amu lalui. Baik seneng maupun sedih. Tapi kelihatannya lebi banyak sedih dan kompleksnya yak. Lek dr yg kutau satu dua contohe masa amu ga disenengi sekelas pekara anak emas e guru atau apa iku aga lupa, trus jaman amu strugle ngejobseeker bergelud dgn omongan orang seng lambene ga disekolahno, atau masalah keluargamu, bahkan hal lain yang sampai sekarang masih berusaha amu lalui atau diluar yang kutau. Maka dari itu, inget bahwa amu sehebat iku.
 
-<img src="Source/Lockscreen Doyoung.jpg?raw=true"/>
+<img src="Source/Doyoung.jpg?raw=true"/>
 
 
 ### Kedua
