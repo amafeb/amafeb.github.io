@@ -16,7 +16,7 @@ description: "Temanmu yang limited edition" # This will show up in places like t
 #googleplus_username: +username
 
 body {
-  background-image: url(img src="Source/𝐃𝐨𝐲𝐨𝐮𝐧𝐠 _ 26_12_23.jpg?raw=true"/>);
+  background-image: <img src="Source/𝐃𝐨𝐲𝐨𝐮𝐧𝐠 _ 26_12_23.jpg?raw=true"/>;
   background-repeat: repeat-x;
 }
 
