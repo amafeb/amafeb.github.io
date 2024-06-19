@@ -1,4 +1,4 @@
-### Just Intro
+### Spesial Buat Kamu, Klik ya!!!
 Just intro, setelah ku scroll ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Jd lek amu pernah bilang lek love languageku WoA. Salaaahh✖️
 
 ### Ok, Mulai - Pertama
@@ -24,14 +24,3 @@ Ga linear tp tak ceritakan tentang kenapa aku bisa suka jkt48 terutama olla. Kar
 #### Sekali lagi, happy birthday yak.
 ~ Ama
 
-#### Some PowerShell Code
-
-```powershell
-Write-Host "This is a powershell Code block";
-
-# There are many other languages you can use, but the style has to be loaded first
-
-ForEach ($thing in $things) {
-    Write-Output "It highlights it using the GitHub style"
-}
-```
