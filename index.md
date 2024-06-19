@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Haiii 👋 👋 
 
-Maybe say a some things about yourself.
+Kepo ya??? Wocoen gih, ancen buat amu kok... 
 
-Or maybe what you plan to blog about.
+Tapi usahakan pas senggang banget. Lek ga, tutup maneh, comeback o pas nganggur karena ini akan panjang wkwk.
