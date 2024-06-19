@@ -15,10 +15,6 @@ description: "Temanmu yang limited edition" # This will show up in places like t
 #youtube_username: username
 #googleplus_username: +username
 
-body {
-  background-image: url('𝐃𝐨𝐲𝐨𝐮𝐧𝐠 _ 26_12_23.jpg');
-  background-repeat: repeat-x;
-}
 
 #########################################################################################
 ######### Nothing below needs to be changed (unless you know what you're doing) #########
