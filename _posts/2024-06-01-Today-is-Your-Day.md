@@ -1,4 +1,11 @@
 ### Spesial Buat Kamu, Klik ya!!!
+
+Klik dulu gih, biar ada backsound e wkwk
+
+[Klik Disini!!!](https://open.spotify.com/track/2sNJy7gkeamXHUt48kXMbJ?si=2d4187943db948df)
+
+
+### Pendahuluan
 Jadiii, setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Jd lek amu pernah bilang lek love languageku WoA. Salaaahh✖️
 
 ### Ok, Mulai
