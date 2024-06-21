@@ -1,10 +1,10 @@
 ### Spesial Buat Kamu, Klik ya!!!
 
-Klik n play dulu yak, biar ada backsound e wkwk
+Klik n play dulu yak, ben ono backsound e wkwk
 
 [![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/track/2sNJy7gkeamXHUt48kXMbJ?si=2d4187943db948df)
 
-[Link Alternatif Kalau Ga Muncul](https://open.spotify.com/track/2sNJy7gkeamXHUt48kXMbJ?si=2d4187943db948df)
+[Link Alternatif Lek Ga Muncul](https://open.spotify.com/track/2sNJy7gkeamXHUt48kXMbJ?si=2d4187943db948df)
 
 
 ### Intro
@@ -14,7 +14,7 @@ Jadiii, karena sekarang tanggal 1 Juli 2024, yg diketahui sebagai hari kelahiran
 
 ### Ok, Mari Kita Mulai
 
-Pertama, yok refleksi sejenak, nengok kebelakang bentar. Hebat ya.. terhitung sejak 1 Juli 2021 s.d detik ini wes banyak masa dan hal seng amu lalui. 23 Tahun beserta rangkaian ceritanya berhasil amu lalui. Baik seneng maupun sedih. Tapi kelihatannya lebi banyak sedih dan kompleksnya yak. Contohe sebelum awadewe deket, kelas 2 atau 3 ya, amu pernah operasi ga si(?), aku cmn sebatas tau dr cerita teman2mu waktu iku. Trus dr ceritamu lainnya iku, masa amu ga disenengi sekelas pekara anak emas e guru atau apa iku aga lupa, masa covid, trus maneh jaman amu strugle ngejobseeker bergelud dgn omongan orang seng lambene ga disekolahno, atau masalah keluargamu, bahkan hal lain yang sampai sekarang masih berusaha amu lalui atau diluar yang kutau. See, sebanyak iku dan kebanyakan amu berhasil melaluinya dengan baik. Maka dari itu, selalu inget bahwa amu sehebat iku.
+Pertama, yok refleksi sejenak, nengok kebelakang bentar. Hebat ya.. terhitung sejak 1 Juli 2001 s.d detik ini wes banyak masa dan hal seng amu lalui. 23 Tahun beserta rangkaian ceritanya berhasil amu lalui. Baik seneng maupun sedih. Tapi kelihatannya lebi banyak sedih dan kompleksnya yak. Contohe sebelum awadewe deket, kelas 2 atau 3 ya, amu pernah operasi ga si(?), aku cmn sebatas tau dr cerita teman2mu waktu iku. Trus dr ceritamu lainnya iku, masa amu ga disenengi sekelas pekara anak emas e guru atau apa iku aga lupa, masa covid, trus maneh jaman amu strugle ngejobseeker bergelud dgn omongan orang seng lambene ga disekolahno, atau masalah keluargamu, bahkan hal lain yang sampai sekarang masih berusaha amu lalui atau diluar yang kutau. See, sebanyak iku dan kebanyakan amu berhasil melaluinya dengan baik. Maka dari itu, selalu inget bahwa amu sehebat iku.
 
 Nah, dapat lop lop dari suamimu
 
@@ -22,9 +22,9 @@ Nah, dapat lop lop dari suamimu
 
 
 ### Lanjooootttt
-Kedua, amu selalu bilang bangga dadi temanku. Tapi sejujurnya aku seng sangat bangga ambe amu. Seng iso ngusahakno opo2 sendiri. Seng gapernah mudah menyerah. Pekerja keras. Selalu memperjuangkan banyak hal terutama demi keluargamu. Jujurly aku banyak kayak ter hah heh hoh lek mok ceritani banyak hal. Ini dalam artian kagum yak... Terutama lek amu sedang effort mengejar suatu tujuan. Kek kok bisa see serajin iku, mungkin lek iku aku wes keburu mager atau bahkan wes patah semangat nde awal. Tapi dibalik iku, pasti lek dibedah dari sisi terdalam dirimu bakal banyak cape atau ngeluh e, hebate adalah amu gaperna nunjukno iku dan selalu berusaha kuat cuma demi ibu dan adik2mu. Lek amu merasa dirimu belum mencapai apa-apa iku salah. Banyak hal seng wes mok capai, sekalipun ada satu dua yang belum berhasil atau belum terupayakan bukan berarti amu gagal. Sekalipun ada sepersekian masa seng menurutmu berat dan kaya ga bakal terlalui. Inget maneh bahwa dulu dalam 23 tahun berlalu juga banyak hal serupa dan pada akhire amu berhasil melaluinya. Semoga hal-hal yang membuatmu runtuh di masa lalu menjadi pijakan buatmu tumbuh. 
+Kedua, amu selalu bilang bangga dadi temanku. Tapi sejujurnya aku seng sangat bangga ambe amu yang sudah mau menjadi temanku. Tentang dirimu seng iso ngusahakno opo2 sendiri. Seng gapernah mudah menyerah. Pekerja keras. Selalu memperjuangkan banyak hal terutama demi keluargamu. Jujurly aku banyak kayak ter hah heh hoh lek mok ceritani banyak hal. Ini dalam artian kagum yak... Terutama lek amu sedang effort mengejar suatu tujuan. Kek kok bisa see serajin iku, mungkin lek iku aku wes keburu mager atau bahkan wes patah semangat nde awal. Tapi dibalik iku, pasti lek dibedah dari sisi terdalam dirimu bakal banyak cape atau ngeluh e, hebate adalah amu gaperna nunjukno iku dan selalu berusaha kuat cuma demi ibu dan adik2mu. Lek amu merasa dirimu belum mencapai apa-apa iku salah. Banyak hal seng wes mok capai, sekalipun ada satu dua yang belum berhasil atau belum terupayakan bukan berarti amu gagal. Sekalipun ada sepersekian masa seng menurutmu berat dan kaya ga bakal terlalui. Inget maneh bahwa dulu dalam 23 tahun berlalu juga banyak hal serupa dan pada akhire amu berhasil melaluinya. Semoga hal-hal yang membuatmu runtuh di masa lalu menjadi pijakan buatmu tumbuh. 
 
-##### FIGHTING!!!!! Senyum dong... nah... dikasih buket bebeb. Mleyot kan luw!!!
+#### FIGHTING!!!!! Senyum dong... nah... dikasih buket bebeb. Mleyot kan luw!!!
 
 ![𖥻knowkitty 𖤐 𓈒࣪  ᭡ ˖](https://github.com/amafeb/amafeb.github.io/assets/100106202/053c01f9-06b5-4294-9fec-114094a98b2a)
 
