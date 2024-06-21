@@ -8,11 +8,13 @@ Klik n play dulu yak, biar ada backsound e wkwk
 
 
 ### Intro
-Jadiii, karena sekarang tanggal 1 Juli 2024, yg diketahui sebagai hari kelahiran temanku satu ini. Maka aku berniat memberi ucapan dan membuka room chat kita. Tapi..... setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Jd lek amu pernah bilang lek love languageku WoA, kayae iku salaaahh✖️. Berlatar belakang masalah iku, maka kubuatlah ini dengan agak effort. Btw link iki sementara, jadi bacaen sampe tuntas. Karena mungkin suatu saat lek mok buka ulang isi e wes ngga iki maneh. Soale iki bekas repository github tugas studi independenku.
+Jadiii, karena sekarang tanggal 1 Juli 2024, yg diketahui sebagai hari kelahiran temanku satu ini. Maka aku berniat memberi ucapan dan membuka room chat kita. Tapi..... setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Jd lek amu pernah bilang lek love languageku WoA, kayae iku salaaahh✖️. Aku cuman seneng cerita ke orang tertentu ae. Nah, berlatar belakang masalah iku, maka kubuatlah ini dengan agak effort. Btw link iki sementara, jadi bacaen sampe tuntas. Karena mungkin suatu saat lek mok buka ulang isi e wes ngga iki maneh. Soale iki bekas repository github tugas studi independenku.
 
-### Ok, Mulai
 
-Pertama, yok refleksi sejenak, nengok kebelakang bentar. Hebat ya.. wes banyak masa dan hal seng amu lalui. Baik seneng maupun sedih. Tapi kelihatannya lebi banyak sedih dan kompleksnya yak. Lek dr yg kutau satu dua contohe masa amu ga disenengi sekelas pekara anak emas e guru atau apa iku aga lupa, trus jaman amu strugle ngejobseeker bergelud dgn omongan orang seng lambene ga disekolahno, atau masalah keluargamu, bahkan hal lain yang sampai sekarang masih berusaha amu lalui atau diluar yang kutau. Maka dari itu, inget bahwa amu sehebat iku.
+
+### Ok, Mari Kita Mulai
+
+Pertama, yok refleksi sejenak, nengok kebelakang bentar. Hebat ya.. terhitung sejak 1 Juli 2021 s.d detik ini wes banyak masa dan hal seng amu lalui. 23 Tahun beserta rangkaian ceritanya berhasil amu lalui. Baik seneng maupun sedih. Tapi kelihatannya lebi banyak sedih dan kompleksnya yak. Contohe sebelum awadewe deket, kelas 2 atau 3 ya, amu pernah operasi ga si(?), aku cmn sebatas tau dr cerita teman2mu waktu iku. Trus dr ceritamu lainnya iku, masa amu ga disenengi sekelas pekara anak emas e guru atau apa iku aga lupa, masa covid, trus maneh jaman amu strugle ngejobseeker bergelud dgn omongan orang seng lambene ga disekolahno, atau masalah keluargamu, bahkan hal lain yang sampai sekarang masih berusaha amu lalui atau diluar yang kutau. See, sebanyak iku dan kebanyakan amu berhasil melaluinya dengan baik. Maka dari itu, selalu inget bahwa amu sehebat iku.
 
 Nah, dapat lop lop dari suamimu
 
@@ -20,19 +22,24 @@ Nah, dapat lop lop dari suamimu
 
 
 ### Lanjooootttt
-Kedua, aku bangga ambe amu. Seng iso ngusahakno opo2 sendiri. Seng gapernah mudah menyerah. Pekerja keras. Selalu memperjuangkan banyak hal terutama demi keluargamu. Jujurly aku banyak kayak ter hah heh hoh lek mok ceritani banyak hal. Terutama lek amu sedang effort mengejar suatu tujuan. Kek kok bisa see serajin iku, mungkin lek iku aku wes keburu mager e atau bahkan wes patah semangat nde awal. Tapi dibalik iku, pasti lek dibedah dari sisi terdalam dirimu bakal banyak cape atau ngeluh e, hebate adalah amu gaperna nunjukno iku dan selalu berusaha kuat cuma demi ibu dan adik2mu. Semoga hal-hal yang membuatmu runtuh di masa lalu menjadi pijakan buatmu tumbuh. 
+Kedua, amu selalu bilang bangga dadi temanku. Tapi sejujurnya aku seng sangat bangga ambe amu. Seng iso ngusahakno opo2 sendiri. Seng gapernah mudah menyerah. Pekerja keras. Selalu memperjuangkan banyak hal terutama demi keluargamu. Jujurly aku banyak kayak ter hah heh hoh lek mok ceritani banyak hal. Ini dalam artian kagum yak... Terutama lek amu sedang effort mengejar suatu tujuan. Kek kok bisa see serajin iku, mungkin lek iku aku wes keburu mager atau bahkan wes patah semangat nde awal. Tapi dibalik iku, pasti lek dibedah dari sisi terdalam dirimu bakal banyak cape atau ngeluh e, hebate adalah amu gaperna nunjukno iku dan selalu berusaha kuat cuma demi ibu dan adik2mu. Lek amu merasa dirimu belum mencapai apa-apa iku salah. Banyak hal seng wes mok capai, sekalipun ada satu dua yang belum berhasil atau belum terupayakan bukan berarti amu gagal. Sekalipun ada sepersekian masa seng menurutmu berat dan kaya ga bakal terlalui. Inget maneh bahwa dulu dalam 23 tahun berlalu juga banyak hal serupa dan pada akhire amu berhasil melaluinya. Semoga hal-hal yang membuatmu runtuh di masa lalu menjadi pijakan buatmu tumbuh. 
 
-##### FIGHTING!!!!!
-semangat dong, nah... dikasih buket bebeb. Mleyot kan luw
+##### FIGHTING!!!!! Senyum dong... nah... dikasih buket bebeb. Mleyot kan luw!!!
 
 ![𖥻knowkitty 𖤐 𓈒࣪  ᭡ ˖](https://github.com/amafeb/amafeb.github.io/assets/100106202/053c01f9-06b5-4294-9fec-114094a98b2a)
 
 
 ### Ketiga
 #### Inti dari segala inti
-Happy birthday yaw... Selamat merayakan bertambahnya usia. Terimakasih sudah lahir di dunia ini. Mungkin selain ortumu, aku orang kesekian seng bersyukur atas hadir e amu di dunia. Walaupun dipikir-pikir ga kepikiran kok awadewe iso berteman sampai di titik sedekat ini wkwk. Dari seng awale asing, kenal tapi ga dekat, love hate relationship, sering ketemu nde karantina olimp tapi sabodo teuing eta teh sahaa, sampe berakhir bestod.  Semoga banyak hal baik mendatangimu di usia baru ini. Semoga yang diusahakan dapat digenggam di tahun ini. Bahagia selalu ya... Karena sebanyak apapaun harta atau pencapaian lek ga bahagia iku percuma:) 
+Kedawan ya basa basi busuk e? wkwk, ya maap.. 
 
-Yok senyum dulu, cisssss di foto yang beb
+Happy birthday yaw... Selamat merayakan bertambahnya usia. Selamat menyambut masa-masa berharga baru. Salamat dan semangat bertempur dengan tantangan-tantangan baru. Terimakasih sudah lahir di dunia ini. Mungkin selain ortumu, aku orang kesekian seng bersyukur atas hadir e amu di dunia. Walaupun dipikir-pikir ga kepikiran kok awadewe iso berteman sampai di titik sedekat ini wkwk. Dari seng awale asing, kenal tapi ga dekat, love hate relationship, sering ketemu nde karantina olimp tapi sabodo teuing eta teh sahaa, sampe berakhir bestod.  Semoga banyak hal baik mendatangimu di usia baru ini. Semoga yang diusahakan dapat digenggam di tahun ini. Semoga sukses di dunia akhirat. Ntar lek masuk surga, ingeto aku, panggil aku ben ga lama-lama nde neraka wkwk. Trus semoga menjadi pribadi yang lebih baik lagi. Semoga bisa jadi mba-mba kaya raya di usia muda idola para bocil yang minta THR. Bahagia selalu ya... Karena sebanyak apapaun harta atau pencapaian lek ga bahagia iku percuma:) 
+
+Oiya, semoga dipertemukan dengan jodoh yang baik dan diwaktu yang tepat saat semuanya sudah tertata rapi yaw atau saat dalam waktu yang terbaik bagi amu. Karena wes dewasa, jgn jd korban laki2 seng ga worth it ge amu maneh yaw. Cari dia seng cintanya ke amu sama besarnya bahkan jauh lebih besar. Ben amu selalu di ratukan.
+
+Tapi sementara selagi jombs, maka lanjutakan kehaluanmu ke k-pop idolmu.
+
+Yok senyum dulu, cisssss di foto yang beb wkwk
 
 ![3a3e1ee6-5587-423e-84dd-4efe3d4fd2d1](https://github.com/amafeb/amafeb.github.io/assets/100106202/5065084e-da50-4c62-812d-b22e2cf59085)
 
