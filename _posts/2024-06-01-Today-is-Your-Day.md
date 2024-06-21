@@ -8,7 +8,7 @@ Klik n play dulu yak, biar ada backsound e wkwk
 
 
 ### Intro
-Jadiii, karena sekarang tanggal 1 Juli 2024, yg diketahui sebagai hari kelahiran temanku satu ini. Maka aku berniat memberi ucapan dan membuka room chat kita, tapi..... setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Jd lek amu pernah bilang lek love languageku WoA, kayae iku salaaahh✖️. Berlatar belakang masalah iku, maka kubuatlah ini dengan sambil pusing 7 keliling mengingat materi studpend coding tipis2
+Jadiii, karena sekarang tanggal 1 Juli 2024, yg diketahui sebagai hari kelahiran temanku satu ini. Maka aku berniat memberi ucapan dan membuka room chat kita. Tapi..... setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Jd lek amu pernah bilang lek love languageku WoA, kayae iku salaaahh✖️. Berlatar belakang masalah iku, maka kubuatlah ini dengan agak effort. Btw link iki sementara, jadi bacaen sampe tuntas. Karena mungkin suatu saat lek mok buka ulang isi e wes ngga iki maneh. Soale iki bekas repository github tugas studi independenku.
 
 ### Ok, Mulai
 
