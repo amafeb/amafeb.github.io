@@ -2,6 +2,8 @@
 
 Klik dulu gih, biar ada backsound e wkwk
 
+[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/track/2sNJy7gkeamXHUt48kXMbJ?si=2d4187943db948df)
+
 [Klik Disini!!!](https://open.spotify.com/track/2sNJy7gkeamXHUt48kXMbJ?si=2d4187943db948df)
 
 
