@@ -1,6 +1,6 @@
 Haiii 👋 👋
 
-<img src="Source/𝐃𝐨𝐲𝐨𝐮𝐧𝐠 _ 26_12_23.jpg?raw=true"/>
+![IMG-20190818-WA0065](https://github.com/amafeb/amafeb.github.io/assets/100106202/a4aec5ab-d2e7-450d-a9e3-db34db946ebb)
 
 Kepo ya??? Wocoen gih, ancen buat amu kok... 
 
