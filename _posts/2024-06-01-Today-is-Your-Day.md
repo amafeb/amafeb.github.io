@@ -8,7 +8,7 @@ Klik n play dulu yak, ben ono backsound e wkwk
 
 
 ### Intro
-Jadiii, karena sekarang tanggal 1 Juli 2024, yg diketahui sebagai hari kelahiran bestiku satu ini. Maka aku berniat memberi ucapan dan membuka room chat kita. Tapi..... setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Jd lek amu pernah bilang lek love languageku WoA, kayae iku salaaahh✖️. Aku cuman seneng cerita ke orang tertentu ae. Nah, berlatar belakang masalah iku, maka kubuatlah ini dengan agak effort. Btw link iki sementara, jadi bacaen sampe tuntas. Karena mungkin suatu saat lek mok buka ulang isi e wes ngga iki maneh. Soale iki bekas repository github tugas studi independenku.
+Jadiii, karena sekarang tanggal 1 Juli 2024, yg diketahui sebagai hari kelahiran bestiku satu ini. Maka aku berniat memberi ucapan dan membuka room chat kita. Tapi..... setelah ku scroll chat kita, ternyata aku gapernah mengucapkan dgn benar. Cuman kirim stiker, gambar aneh, link gajelas, cringe bgt pas tak liat ulang. Maapkanlah wkwk. Nah, berlatar belakang masalah iku, maka kubuatlah ini dengan agak effort. Btw link iki sementara, jadi bacaen sampe tuntas. Karena mungkin suatu saat lek mok buka ulang isi e wes ngga iki maneh. Soale iki bekas repository github tugas studi independenku.
 
 
 
@@ -56,6 +56,7 @@ Dan aku berharap amu kaya oshiku si olla ini, semoga semakin bersinar terang. Se
 ---
 #### Sekali lagi, happy birthday yak.
 Maapkan lek panjang kali lebar dan ngelantur. Dan maapkan lek aku salah mengambil gambar doyoungmu wkwk. Tapi pokok seng tak ambil tetep ganteng. Peace ✌✌
+Btw selamat atas lulusnya seleksimu yak, bangga banget deh. Kwereeen, amazed akutuh bgt dgn bestieku ini❤️
 
 ![Doyoung 🐰](https://github.com/amafeb/amafeb.github.io/assets/100106202/76bd66b5-4c39-4371-91d9-0b85798e7bdd)
 
