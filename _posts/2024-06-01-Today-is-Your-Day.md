@@ -56,7 +56,8 @@ Dan aku berharap amu kaya oshiku si olla ini, semoga semakin bersinar terang. Se
 ---
 #### Sekali lagi, happy birthday yak.
 Maapkan lek panjang kali lebar dan ngelantur. Dan maapkan lek aku salah mengambil gambar doyoungmu wkwk. Tapi pokok seng tak ambil tetep ganteng. Peace ✌✌
-Btw selamat atas lulusnya seleksimu yak, bangga banget deh. Kwereeen, amazed akutuh bgt dgn bestieku ini❤️
+
+Btw selamat atas lulusnya seleksimu yak, bangga banget deh. Kwereeen, amazed bgt akutuh dgn bestieku ini❤️
 
 ![Doyoung 🐰](https://github.com/amafeb/amafeb.github.io/assets/100106202/76bd66b5-4c39-4371-91d9-0b85798e7bdd)
 
